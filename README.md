@@ -1,44 +1,100 @@
-    /$$$$$                    
-   |__  $$                    
-      | $$  /$$$$$$  /$$$$$$$ 
-      | $$ /$$__  $$| $$__  $$
- /$$  | $$| $$  \ $$| $$  \ $$
-| $$  | $$| $$  | $$| $$  | $$
-|  $$$$$$/|  $$$$$$$| $$  | $$
- \______/  \____  $$|__/  |__/
-           /$$  \ $$          
-          |  $$$$$$/          
-           \______/           
-  /$$$$$$                               
- /$$__  $$                              
-| $$  \ $$  /$$$$$$   /$$$$$$  /$$$$$$$ 
-| $$  | $$ /$$__  $$ /$$__  $$| $$__  $$
-| $$  | $$| $$  \ $$| $$$$$$$$| $$  \ $$
-| $$  | $$| $$  | $$| $$_____/| $$  | $$
-|  $$$$$$/| $$$$$$$/|  $$$$$$$| $$  | $$
- \______/ | $$____/  \_______/|__/  |__/
-          | $$                          
-          | $$                          
-          |__/                          
- /$$$$$$$$                           
-|__  $$__/                           
-   | $$ /$$$$$$$   /$$$$$$   /$$$$$$ 
-   | $$| $$__  $$ /$$__  $$ |____  $$
-   | $$| $$  \ $$| $$  \ $$  /$$$$$$$
-   | $$| $$  | $$| $$  | $$ /$$__  $$
-   | $$| $$  | $$| $$$$$$$/|  $$$$$$$
-   |__/|__/  |__/| $$____/  \_______/
-                 | $$                
-                 | $$                
-                 |__/                
- /$$$$$$           /$$                 /$$
-|_  $$_/          |__/                | $$
-  | $$   /$$$$$$$$ /$$ /$$$$$$$       | $$
-  | $$  |____ /$$/| $$| $$__  $$      | $$
-  | $$     /$$$$/ | $$| $$  \ $$      |__/
-  | $$    /$$__/  | $$| $$  | $$          
- /$$$$$$ /$$$$$$$$| $$| $$  | $$       /$$
-|______/|________/|__/|__/  |__/      |__/
-                                          
-                                          
-                                          
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
+JANGAN BUKA TANPA IZIN!
