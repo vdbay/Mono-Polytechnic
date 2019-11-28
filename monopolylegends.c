@@ -37,12 +37,12 @@ Start Develop: (11.46 A.M) 26/11/2019
 void menu(){
 	int choice;
 	system("cls");
-	printf("=====Monopoly Legends=====\n");
+	printf("=====Mono Polytechnic=====\n");
 	printf("1. Play\n");
 	printf("2. How To Play\n");
 	printf("3. High Score\n");
 	printf("4. Exit\n");
-	printf("===========================\n");
+	printf("==========================\n");
 	choice:
 	printf("Input your choice:");
 	scanf("%d", &choice);
@@ -171,12 +171,12 @@ Start Develop: (11.46 A.M) 26/11/2019
 void menu(){
 	int choice;
 	system("cls");
-	printf("=====Monopoly Legends=====\n");
+	printf("=====Mono Polytechnic=====\n");
 	printf("1. Play\n");
 	printf("2. How To Play\n");
 	printf("3. High Score\n");
 	printf("4. Exit\n");
-	printf("===========================\n");
+	printf("==========================\n");
 	choice:
 	printf("Input your choice:");
 	scanf("%d", &choice);
